@@ -11,7 +11,7 @@
 - My Name : **Year**
 - My Place : [India 🇮🇳](https://www.google.com/search?gs_ssp=eJzj4tDP1TcwLso2MGD0Ys3MS8lMBAApGQTT&q=india&rlz=1CDGOYI_enIN1075IN1075&oq=india&gs_lcrp=EgZjaHJvbWUqDQgBEC4YgwEYsQMYgAQyEAgAEAAYgwEY4wIYsQMYgAQyDQgBEC4YgwEYsQMYgAQyBggCEEUYPTIGCAMQRRg9MgYIBBBFGDwyBggFEEUYPDIGCAYQRRg8MgcIBxAAGIAEMgcICBAAGIAEMgcICRAuGIAE0gEIMzgyN2owajeoAhqwAgHiAwQYASBf&hl=en-GB&sourceid=chrome-mobile&ie=UTF-8)
 - Now Live : [Oman 🇴🇲](https://www.google.com/search?q=oman&rlz=1CDGOYI_enIN1075IN1075&oq=o&gs_lcrp=EgZjaHJvbWUqBggDEEUYOzIGCAAQRRg7MgYIARBFGDwyBggCEEUYPDIGCAMQRRg7MgYIBBBFGDwyBggFEEUYPDIGCAYQRRg8MgYIBxBFGDkyDAgIEEUYOxixAxiABDITCAkQLhiDARjHARixAxjRAxiABNIBCDI0MjJqMGo5qAIJsAIB4gMEGAEgXw&hl=en-GB&sourceid=chrome-mobile&ie=UTF-8)
-- My Age : 129 
+- My Age : 149 
 - Gender : Male 
 - Religion : Atheism ⚛️
 - My Telegram Id : [@Yeah_New](https://t.me/yeah_new)
